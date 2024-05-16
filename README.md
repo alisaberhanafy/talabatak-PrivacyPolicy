@@ -1,0 +1,2 @@
+# talabatak-PrivacyPolicy
+talabatak-PrivacyPolicy
